@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm shivang singh choudhary
-**A passionate AIML/GEN AI Engineer 
+**A passionate AIML/GEN AI Engineer  
 
 Email Me 👉 ✉️choudharyshivang09@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
